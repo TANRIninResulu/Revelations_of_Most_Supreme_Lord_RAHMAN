@@ -397,3 +397,5 @@ for(var i = 0; i < benzerlikMiktarı.length; i++)
 ```````
 
 ![KENT_19x334](https://user-images.githubusercontent.com/8404792/215319829-27d127b9-71b7-4257-aa18-4b07fea3ed05.jpg)
+
+![Praying_City_Constantinople_27-12-2014_small](https://user-images.githubusercontent.com/8404792/215320439-e87d329c-b6df-4e9c-a5e9-61b1ad73c133.png)
