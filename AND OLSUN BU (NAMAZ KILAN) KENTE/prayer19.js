@@ -21,16 +21,17 @@
     PSALMS 119:164
     "Seven times a day I praise YOU for YOUR Righteous Regulations."
 
-    GOD has talked to me at 27.12.2014 in Turkish which is my main language
-    and said to me these:
+    GOD HAS TALKED to me at 27.12.2014 in Turkish which is my main language
+    and SAID TO ME THESE "WORDS" BELOW WITH HIS MAGNICIFIENT VOICE coming from ALL OVER THE SKY
+    while flying me over approximately 1 km above the city starting from west of its head to east of its head:
 
-    "And olsun bu kente,"
+    "AND OLSUN BU KENTE," (Swear be to this city,)
 
     I heared A Powerful Thunder!
 
-    "Şüphesiz ki sen elçilerden birisin."
+    "ŞÜPHESİZ Kİ SEN ELÇİLERDEN BİRİSİN." (No doubt you are one of the messengers,)
 
-    GOD said to me these words while showing me City of Constantinople from above:
+    GOD said to me these words while showing me PRAYING City of Constantinople TURNING TOWARDS TO THE KAABA from above:
 
     In order to see Prayer Human Shape of The City of Constantinople Zoom Out:
 
@@ -350,6 +351,8 @@
     2ZVI+"IoZZZVVuuC~'+IT+;7T^_T22T;'''!@@@3k4oyXaaS)`.^``_>)~;-..,+Lv47`..'',,``..','~~,..'''.`  `,`-,  `'  !*_   `.``"L_,_`  `.``'-'  `,   ``` ....`;yZToVyVT>IyZu"^Va;` ,~-1Vf_'(V)i42I2T2nITF2>-_uL.)y_`);.`  `'~',)+,,''.``._^^-;a5uT>ff1>+z<'.),    *@8@@NBW88888W@8N8NNNN@
     2nZ33ZJ""TooC4V5@1_TVT2*~,-)"(FnC42nLv24X9uIuFB@;-*'  `i>-__''..'-;V`'_._..,``,^~.'.``. .'  ..```'. ,14^,;..-<.'.';^!-,,,',-'...,`  .,`., `<-``...,VyVo222u*IoV>_'.'`'.'..~!"nu7ou<oI>FI*n2*n2oo*Cz.;. `~,..```.-_-+~``'.`._-'_i7-^>_>*ou*n"<7_ .    ;@@@SN80N88WWW@@8N8NNNN@
     vVoa5AaooC5VyZ>C4VI("V>~!1v)-"I><12^VJ.`',_+!+CS;~7    ;<!-..'` ..!i`-;_~,,,._+~..` . ,`.'`.,-`.~;!+7i11(_+ -+''',~),;+-,!^~!!.,`'`  ``--  ;- ``_,yy4Vo2oVI2iyI31',  ` `,_'D44417<;z4VIVTooZZCu2"_,'' ```` `'`'`.--J<  .'`~..`.z&.-`,__7nC(!i>' '    C@k@NN000NNNNNNNNNNNNNN@
+
+    AFTER SAWING THE HEAD OF PRAYING CITY I STARTED TO FELL FROM THE SKY TO MY BED IN THE MIDDLE OF THE NIGHT WITH ENOURMOUS MASSIVE SPEED
 */
 
 // Copy and paste JavaScript codes below to browser console and hit "enter" in order to WITNESS ORIGINIAL CONTACT PRAYERS by your self computer:
