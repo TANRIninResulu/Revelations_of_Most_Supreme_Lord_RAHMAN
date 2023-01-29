@@ -9,3 +9,5 @@ YOU CAN READ THIS ALSO FROM HIS WORDS IN QURAN :
 CHAPTER 53 : STAR http://honourablequran.blogspot.com/p/53.html
 
 CHAPTER 81 : ROLLING http://honourablequran.blogspot.com/p/81.html
+
+![BURCUYLA EVLEN](https://user-images.githubusercontent.com/8404792/215317980-b4f6c581-e24e-4a17-a452-a22ccc164f69.jpg)
