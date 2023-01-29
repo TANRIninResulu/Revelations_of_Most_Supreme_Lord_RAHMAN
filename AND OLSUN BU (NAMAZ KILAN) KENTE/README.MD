@@ -21,16 +21,17 @@ GOD HAS PRESERVED CONTACT PRAYERS WITH 19
 PSALMS 119:164
 "Seven times a day I praise YOU for YOUR Righteous Regulations."
 
-GOD has talked to me at 27.12.2014 in Turkish which is my main language
-and said to me these:
+GOD HAS TALKED to me at 27.12.2014 in Turkish which is my main language
+and SAID TO ME THESE "WORDS" BELOW WITH HIS MAGNICIFIENT VOICE coming from ALL OVER THE SKY
+while flying me over approximately 1 km above the city starting from west of its head to east of its head:
 
-"And olsun bu kente,"
+"AND OLSUN BU KENTE," (Swear be to this city,)
 
 I heared A Powerful Thunder!
 
-"Şüphesiz ki sen elçilerden birisin."
+"ŞÜPHESİZ Kİ SEN ELÇİLERDEN BİRİSİN." (No doubt you are one of the messengers,)
 
-GOD said to me these words while showing me City of Constantinople from above:
+GOD said to me these words while showing me PRAYING City of Constantinople TURNING TOWARDS TO THE KAABA from above:
 
 In order to see Prayer Human Shape of The City of Constantinople Zoom Out:
 
