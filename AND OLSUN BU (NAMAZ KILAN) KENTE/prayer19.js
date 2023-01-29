@@ -27,19 +27,19 @@
 
     "AND OLSUN BU KENTE," (Swear be to this city,)
 
-    I heared A Powerful Thunder!
+    I Heard A Powerful Thunder!
 
     "ŞÜPHESİZ Kİ SEN ELÇİLERDEN BİRİSİN." (No doubt you are one of the messengers,)
 
-    GOD said to me these words while showing me PRAYING City of Constantinople TURNING TOWARDS TO THE KAABA from above:
+    GOD said to me these words while showing me "The City of Constantin" (The Constantinople) Which MAKING CONTACT PRAYER WHILE TURNING TOWARDS TO THE KAABA(QIBLA DIRECTON) from above:
 
-    In order to see Prayer Human Shape of The City of Constantinople Zoom Out:
+    In order to see Praying Human Shape of The Constantinople Zoom Out:
 
     Word "kent" / "بلد" occurs in QURAN 19 times   -->    https://QURANix.org/c/bld
 
-    Gematrical Value of "القسطنطينيه" which means "The City of Constantinople" is 334   -->    https://19x334.github.io/#statement=القسطنطينيه
+    Gematrical Value of "القسطنطينيه" which means "The Constantinople" is 334   -->    https://19x334.github.io/#statement=القسطنطينيه
 
-    And QURAN has 19 x 334 verses!
+    And ORIGINAL QURAN HAS 19 x 334 VERSES after removing satanic additions 9:128-129!
 
     @WWW88@WWW@W8@@@@@@@WNNNNNNNN0N0N0NNN000000XAN8NNEXNNNN8N@SkNNNNNN8NNNNNV@@4; `@@ok80T0DSBB0kyk@n` ` .--.``....'`.  .  '.  `    )i `````  `, ,  '+.``'+,     ..'' `. `````'  `    `.'. .!"^_``-   .;'._i2ov2oJo). _y6Suf"''-';"-~`.-  W@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@
     @88888W888888@@@@W8NN8NNNNNNN0N0N000NNNN00009NN9XSS9DXENNO00NNNNNNNN0NNNu@uO@` ~^@NNkFN4yAFI$@@@``''     `` `..```  `    `     ;; `'  `.'`  ,`. `'.`._-       ```  '_````    `,. `'.'!`.7!`   `  ``,  ~okV2yynov-`Z@T^()~.`.';>;'.~^  @@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@
