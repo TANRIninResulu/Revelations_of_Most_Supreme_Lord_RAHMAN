@@ -39,6 +39,8 @@
 
     And QURAN has 19 x 334 verses!
 
+```````
+
     @WWW88@WWW@W8@@@@@@@WNNNNNNNN0N0N0NNN000000XAN8NNEXNNNN8N@SkNNNNNN8NNNNNV@@4; `@@ok80T0DSBB0kyk@n` ` .--.``....'`.  .  '.  `    )i `````  `, ,  '+.``'+,     ..'' `. `````'  `    `.'. .!"^_``-   .;'._i2ov2oJo). _y6Suf"''-';"-~`.-  W@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@
     @88888W888888@@@@W8NN8NNNNNNN0N0N000NNNN00009NN9XSS9DXENNO00NNNNNNNN0NNNu@uO@` ~^@NNkFN4yAFI$@@@``''     `` `..```  `    `     ;; `'  `.'`  ,`. `'.`._-       ```  '_````    `,. `'.'!`.7!`   `  ``,  ~okV2yynov-`Z@T^()~.`.';>;'.~^  @@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@
     @8WW888888888@@@@@@@@@W8NNNNN0N0N000NNN00NNNN0000005AO0OXS0N0NNNNNNNNNNN0@vD@`   @k@@k@N5@@@@f~! .~,  `  `   `_,`'`    '.  '_,`   .``    ``      _!'.    ```,-   . .+'.,__,,,```-`') ,-`'.`.``'   `.``7V>;,,-,"n(i&3;,;+f)+>,`',<"14'1@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@
@@ -350,8 +352,11 @@
     2nZ33ZJ""TooC4V5@1_TVT2*~,-)"(FnC42nLv24X9uIuFB@;-*'  `i>-__''..'-;V`'_._..,``,^~.'.``. .'  ..```'. ,14^,;..-<.'.';^!-,,,',-'...,`  .,`., `<-``...,VyVo222u*IoV>_'.'`'.'..~!"nu7ou<oI>FI*n2*n2oo*Cz.;. `~,..```.-_-+~``'.`._-'_i7-^>_>*ou*n"<7_ .    ;@@@SN80N88WWW@@8N8NNNN@
     vVoa5AaooC5VyZ>C4VI("V>~!1v)-"I><12^VJ.`',_+!+CS;~7    ;<!-..'` ..!i`-;_~,,,._+~..` . ,`.'`.,-`.~;!+7i11(_+ -+''',~),;+-,!^~!!.,`'`  ``--  ;- ``_,yy4Vo2oVI2iyI31',  ` `,_'D44417<;z4VIVTooZZCu2"_,'' ```` `'`'`.--J<  .'`~..`.z&.-`,__7nC(!i>' '    C@k@NN000NNNNNNNNNNNNNN@
 
+```````
 
 Copy and paste JavaScript codes below to browser console and hit "enter" in order to WITNESS ORIGINIAL CONTACT PRAYERS by your self computer:
+
+```
 
 var olasılıklar = [];
 
@@ -392,3 +397,5 @@ console.log(benzerlikMiktarı);
 console.log("Mevcut Kılanan Namazlara En Çok Benzeyen Olasılık:");
 for(var i = 0; i < benzerlikMiktarı.length; i++)
     if(benzerlikMiktarı[i] == 3) console.log(olasılıklar[i]);
+
+```
