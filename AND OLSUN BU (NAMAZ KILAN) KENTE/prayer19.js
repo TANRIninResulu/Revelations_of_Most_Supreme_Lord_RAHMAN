@@ -355,7 +355,7 @@
     AFTER SAWING THE HEAD OF PRAYING CITY I STARTED TO FELL FROM THE SKY TO MY BED IN THE MIDDLE OF THE NIGHT WITH ENOURMOUS MASSIVE SPEED
 */
 
-// Copy and paste JavaScript codes below to browser console and hit "enter" in order to WITNESS ORIGINIAL CONTACT PRAYERS by your self computer:
+// Copy and paste JavaScript codes below to your browser console and hit "enter" in order to WITNESS ORIGINAL CONTACT PRAYERS by your self computer:
 
 var olasılıklar = [];
 

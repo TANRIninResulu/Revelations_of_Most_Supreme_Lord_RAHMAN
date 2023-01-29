@@ -352,7 +352,13 @@ koCo<fDyyykV1*;+*;~!-!~FC1^)L1+-_v@@WOZ2yNDIXy2@5~`` .-__!1uv()<+~~'`,.-- .'  ''
 2nZ33ZJ""TooC4V5@1_TVT2*~,-)"(FnC42nLv24X9uIuFB@;-*'  `i>-__''..'-;V`'_._..,``,^~.'.``. .'  ..```'. ,14^,;..-<.'.';^!-,,,',-'...,`  .,`., `<-``...,VyVo222u*IoV>_'.'`'.'..~!"nu7ou<oI>FI*n2*n2oo*Cz.;. `~,..```.-_-+~``'.`._-'_i7-^>_>*ou*n"<7_ .    ;@@@SN80N88WWW@@8N8NNNN@
 vVoa5AaooC5VyZ>C4VI("V>~!1v)-"I><12^VJ.`',_+!+CS;~7    ;<!-..'` ..!i`-;_~,,,._+~..` . ,`.'`.,-`.~;!+7i11(_+ -+''',~),;+-,!^~!!.,`'`  ``--  ;- ``_,yy4Vo2oVI2iyI31',  ` `,_'D44417<;z4VIVTooZZCu2"_,'' ```` `'`'`.--J<  .'`~..`.z&.-`,__7nC(!i>' '    C@k@NN000NNNNNNNNNNNNNN@
 
-// Copy and paste JavaScript codes below to browser console and hit "enter" in order to WITNESS ORIGINIAL CONTACT PRAYERS by your self computer:
+```````
+
+![KENT_19x334](https://user-images.githubusercontent.com/8404792/215319829-27d127b9-71b7-4257-aa18-4b07fea3ed05.jpg)
+
+Copy and paste JavaScript codes below to your browser console and hit "enter" in order to WITNESS ORIGINAL CONTACT PRAYERS by your self computer:
+
+```
 
 var olasılıklar = [];
 
@@ -394,8 +400,6 @@ console.log("Mevcut Kılanan Namazlara En Çok Benzeyen Olasılık:");
 for(var i = 0; i < benzerlikMiktarı.length; i++)
     if(benzerlikMiktarı[i] == 3) console.log(olasılıklar[i]);
 
-```````
-
-![KENT_19x334](https://user-images.githubusercontent.com/8404792/215319829-27d127b9-71b7-4257-aa18-4b07fea3ed05.jpg)
+```
 
 ![Praying_City_Constantinople_27-12-2014_small](https://user-images.githubusercontent.com/8404792/215320439-e87d329c-b6df-4e9c-a5e9-61b1ad73c133.png)
