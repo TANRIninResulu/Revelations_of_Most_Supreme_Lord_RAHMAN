@@ -395,3 +395,5 @@ for(var i = 0; i < benzerlikMiktarı.length; i++)
     if(benzerlikMiktarı[i] == 3) console.log(olasılıklar[i]);
 
 ```````
+
+![KENT_19x334](https://user-images.githubusercontent.com/8404792/215319829-27d127b9-71b7-4257-aa18-4b07fea3ed05.jpg)
