@@ -26,6 +26,18 @@
 
 53:12 Are you doubting WHAT he saw?
 
+53:13 He saw him in another descent.
+
+53:14 At the ultimate point.
+
+53:15 Where the eternal Paradise is located.
+
+53:16 The whole place was overwhelmed.
+
+53:17 The eyes did not waver, nor go blind.
+
+53:18 He saw great signs of his OWNER.
+
 ----------------------------------------------
 
 5:67 O You Messenger! DELIVER WHAT IS REVEALED TO YOU FROM YOUR OWNER - until you do, you have not delivered HIS MESSAGE - and GOD WILL PROTECT you from the people. GOD does not guide the disbelieving people. 
