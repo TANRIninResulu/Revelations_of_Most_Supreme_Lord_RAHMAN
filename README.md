@@ -1,5 +1,32 @@
 # 2 REVELATIONS OF GOD TO ME (Above)
 
+53:0 IN THE NAME OF THE GOD THE GRACIOUS THE MERCIFUL
+
+53:1 As the star fell away.
+
+53:2 Your friend was not astray, nor was he deceived.
+
+53:3 Nor was he speaking out of a personal desire.
+
+53:4 It was DIVINE INSPIRATION.
+
+53:5 Dictated by THE MOST POWERFUL.
+
+53:6 POSSESSOR OF ALL AUTHORITY. FROM HIS HIGHEST HEIGHT.
+
+53:7 At the Highest Horizon.
+
+53:8 HE drew nearer by moving down.
+
+53:9 Until HE became as close as possible.
+
+53:10 HE then revealed to HIS slave what was to be revealed.
+
+53:11 The heart did not lie WHAT he saw.
+
+53:12 Are you doubting WHAT he saw?
+
+----------------------------------------------
 
 5:67 O You Messenger! DELIVER WHAT IS REVEALED TO YOU FROM YOUR OWNER - until you do, you have not delivered HIS MESSAGE - and GOD WILL PROTECT you from the people. GOD does not guide the disbelieving people. 
  
