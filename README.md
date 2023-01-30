@@ -18,9 +18,9 @@
 
 53:7 At the Highest Horizon.
 
-53:8 HE drew nearer by moving down.
+53:8 HE came down and drew nearer.
 
-53:9 Until HE became as close as possible.
+53:9 The distance was two archs or closer.
 
 53:10 HE then revealed to HIS slave what was to be revealed.
 
