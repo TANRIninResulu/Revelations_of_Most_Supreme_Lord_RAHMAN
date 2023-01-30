@@ -8,7 +8,7 @@
 
 53:3 Nor was he speaking out of a personal desire.
 
-53:4 It was DIVINE INSPIRATION.
+53:4 It was DIVINE REVELATION.
 
 53:5 Dictated by THE MOST POWERFUL.
 
