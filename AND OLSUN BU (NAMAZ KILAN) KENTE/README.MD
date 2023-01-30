@@ -402,8 +402,6 @@ for(var i = 0; i < benzerlikMiktarı.length; i++)
 
 ```
 
-![Praying_City_Constantinople_27-12-2014_small](https://user-images.githubusercontent.com/8404792/215320439-e87d329c-b6df-4e9c-a5e9-61b1ad73c133.png)
-
 53:13 He saw him in another descent.
 
 53:14 At the ultimate point.
@@ -415,3 +413,5 @@ for(var i = 0; i < benzerlikMiktarı.length; i++)
 53:17 The sight did not slide, and did not exceed the limit.
 
 53:18 He saw great signs of his OWNER.
+
+![Praying_City_Constantinople_27-12-2014_small](https://user-images.githubusercontent.com/8404792/215320439-e87d329c-b6df-4e9c-a5e9-61b1ad73c133.png)
