@@ -36,7 +36,7 @@
 
 53:16 The whole place was overwhelmed.
 
-53:17 The eyes did not waver, nor go blind.
+53:17 The sight did not slide, and did not exceed the limit.
 
 53:18 He saw great signs of his OWNER.
 
