@@ -1,5 +1,5 @@
 ```````
-IN THE NAME OF THE GOD THE GRACIOUS THE MERCIFUL
+IN THE NAME OF THE GOD THE ELEGANT THE MERCIFUL
 
 Even tough hypocrites and idolaters swapped Noon and Evening Prayers
 and removed Morning Prayer...
