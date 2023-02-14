@@ -1,8 +1,8 @@
-# 2 REVELATIONS OF GOD TO ME (Above)
+# 2 REVELATIONS OF ELEGANT TO ME (Above)
 
 53 - The Star
 
-53:0 IN THE NAME OF THE GOD THE GRACIOUS THE MERCIFUL
+53:0 IN THE NAME OF THE GOD THE ELEGANT THE MERCIFUL
 
 53:1 As the star fell away.
 
@@ -44,8 +44,8 @@
 
 81 - The Rolling
  
-81:0 IN THE NAME OF THE GOD THE GRACIOUS THE MERCIFUL 
- 
+81:0 IN THE NAME OF THE GOD THE ELEGANT THE MERCIFUL
+
 81:1 When the sun is rolled. 
  
 81:2 The stars are crashed into each other. 
