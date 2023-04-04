@@ -1,25 +1,16 @@
 ```````
 IN THE NAME OF THE GOD THE ELEGANT THE MERCIFUL
 
-Even tough hypocrites and idolaters swapped Noon and Evening Prayers
-and removed Morning Prayer...
-
 GOD HAS PRESERVED CONTACT PRAYERS WITH 19
 
 1. Fajr Prayer:      2 rakat   -->   QURAN 20:130, 30:17, 11:114
-2. Morning Prayer:   1 rakat   -->   QURAN 20:130, 30:17, 11:114
-3. Noon Prayer:      3 rakat   -->   QURAN 20:130, 30:17,  2:238
-4. Afternoon Prayer: 4 rakat   -->   QURAN 20:130, 30:17, 11:114
-5. Evening Prayer:   4 rakat   -->   QURAN 20:130, 30:17, 11:114
-6. Night Prayer:     4 rakat   -->   QURAN 20:130, 30:17, 11:114
-7. Tahajjud Prayer:  1 rakat   -->   QURAN 20:130, 17:79
+2. Noon Prayer:      4 rakat   -->   QURAN 20:130, 30:17,  2:238
+3. Afternoon Prayer: 4 rakat   -->   QURAN 20:130, 30:17, 11:114
+4. Evening Prayer:   3 rakat   -->   QURAN 20:130, 30:17, 11:114
+5. Night Prayer:     4 rakat   -->   QURAN 20:130, 30:17, 11:114
+6. Tahajjud Prayer:  x rakat   -->   QURAN 20:130, 17:79
 
-2 + 1 + 3 + 4 + 4 + 4 + 1  =  19 rakat every day
-2 1 3 4 4 4 1              =  19 x 112339
-12 21 33 44 54 64 71       =  19 x 642807607709
-
-PSALMS 119:164
-"Seven times a day I praise YOU for YOUR Righteous Regulations."
+https://www.masjidtucson.org/turkish/sp/1997/sep/AbdullahArik_Eyl%C3%BCl_1997_Sep.pdf
 
 GOD HAS TALKED to me at 27.12.2014 in Turkish which is my main language
 and SAID TO ME THESE "WORDS" BELOW WITH HIS MAGNICIFIENT VOICE coming from ALL OVER THE SKY
@@ -35,7 +26,7 @@ GOD said to me these words while showing me "The City of Constantin" (The Consta
 
 In order to see Praying Human Shape of The Constantinople Zoom Out:
 
-Word "kent" / "بلد" occurs in QURAN 19 times   -->    https://QURANix.org/c/bld
+Word "city" / "بلد" occurs in QURAN 19 times   -->    https://QURANix.org/c/bld
 
 Gematrical Value of "القسطنطينيه" which means "The Constantinople" is 334   -->    https://19x334.github.io/#statement=القسطنطينيه
 
@@ -355,52 +346,6 @@ vVoa5AaooC5VyZ>C4VI("V>~!1v)-"I><12^VJ.`',_+!+CS;~7    ;<!-..'` ..!i`-;_~,,,._+~
 ```````
 
 ![KENT_19x334](https://user-images.githubusercontent.com/8404792/215319829-27d127b9-71b7-4257-aa18-4b07fea3ed05.jpg)
-
-Copy and paste JavaScript codes below to your browser console and hit "enter" in order to WITNESS ORIGINAL CONTACT PRAYERS by your self computer:
-
-```
-
-var olasılıklar = [];
-
-for(var n1 = 1; n1 <= 4; n1++) {
-    for(var n2 = 1; n2 <= 4; n2++) {
-        for(var n3 = 1; n3 <= 4; n3++) {
-            for(var n4 = 1; n4 <= 4; n4++) {
-                for(var n5 = 1; n5 <= 4; n5++) {
-                    for(var n6 = 1; n6 <= 4; n6++) {
-                        for(var n7 = 1; n7 <= 4; n7++) {
-                            if(parseInt(""+n1+n2+n3+n4+n5+n6+n7) % 19 == 0
-                                && parseInt("1"+n1+"2"+n2+"3"+n3+"4"+n4+"5"+n5+"6"+n6+"7"+n7) % 19 == 0
-                                && (n1+n2+n3+n4+n5+n6+n7) % 19 == 0 ) olasılıklar.push({1:n1,2:n2,3:n3,4:n4,5:n5,6:n6,7:n7});
-                        }
-                    }
-                }
-            }
-        }
-    }
-}
-
-console.log("Tüm olasılıklar:");
-console.log(olasılıklar);
-
-var benzerlikMiktarı = new Array(olasılıklar.length).fill(0);
-
-for(var o = 0; o < olasılıklar.length; o++) {
-    if(olasılıklar[o][1] == 2) benzerlikMiktarı[o]++;
-    if(olasılıklar[o][3] == 4) benzerlikMiktarı[o]++;
-    if(olasılıklar[o][4] == 4) benzerlikMiktarı[o]++;
-    if(olasılıklar[o][5] == 3) benzerlikMiktarı[o]++;
-    if(olasılıklar[o][6] == 4) benzerlikMiktarı[o]++;
-}
-
-console.log("Mevcut Kılanan Namazlara Benzerlik Miktarları:");
-console.log(benzerlikMiktarı);
-
-console.log("Mevcut Kılanan Namazlara En Çok Benzeyen Olasılık:");
-for(var i = 0; i < benzerlikMiktarı.length; i++)
-    if(benzerlikMiktarı[i] == 3) console.log(olasılıklar[i]);
-
-```
 
 53:13 He saw him in another descent.
 
