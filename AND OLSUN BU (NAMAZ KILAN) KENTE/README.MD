@@ -1,17 +1,6 @@
 ```````
 IN THE NAME OF THE GOD THE ELEGANT THE MERCIFUL
 
-GOD HAS PRESERVED CONTACT PRAYERS WITH 19
-
-1. Fajr Prayer:      2 rakat   -->   QURAN 20:130, 30:17, 11:114
-2. Noon Prayer:      4 rakat   -->   QURAN 20:130, 30:17,  2:238
-3. Afternoon Prayer: 4 rakat   -->   QURAN 20:130, 30:17, 11:114
-4. Evening Prayer:   3 rakat   -->   QURAN 20:130, 30:17, 11:114
-5. Night Prayer:     4 rakat   -->   QURAN 20:130, 30:17, 11:114
-6. Tahajjud Prayer:  x rakat   -->   QURAN 20:130, 17:79
-
-https://www.masjidtucson.org/turkish/sp/1997/sep/AbdullahArik_Eyl%C3%BCl_1997_Sep.pdf
-
 GOD HAS TALKED to me at 27.12.2014 in Turkish which is my main language
 and SAID TO ME THESE "WORDS" BELOW WITH HIS MAGNICIFIENT VOICE coming from ALL OVER THE SKY
 while flying me over approximately 1 km above the city starting from west of its head to east of its head:
