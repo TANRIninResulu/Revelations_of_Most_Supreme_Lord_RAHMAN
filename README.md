@@ -1,4 +1,4 @@
-# 2 REVELATIONS OF SACRED & SUPREME ELEGANT TO HIS SLAVE ME (Above)
+# 2 Revelations of Supreme Rahman to His Servant me (Above)
 
 53 - The Star
 
