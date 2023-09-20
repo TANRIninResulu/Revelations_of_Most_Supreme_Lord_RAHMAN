@@ -32,7 +32,7 @@ CHAPTER 53 : STAR http://honourablequran.blogspot.com/p/53.html
 
 CHAPTER 81 : ROLLING http://honourablequran.blogspot.com/p/81.html
 
-![BURCUYLA EVLEN](https://raw.githubusercontent.com/ChosenSlaveOfSacredSupremeKingRahman/REVELATIONS_OF_SACRED_SUPREME_KING_ELEGANT_TO_HIS_Slave_Me_Jesus/main/BURCUYLA%20EVLEN%20ANKARA/burcuyla_evlen.jpeg)
+![BURCUYLA EVLEN](https://raw.githubusercontent.com/aWordFromALLAH/Revelations_of_Supreme_Rahman/main/Burcuyla%20evlen/burcuyla_evlen.jpeg)
 
 53 - The Star
 
