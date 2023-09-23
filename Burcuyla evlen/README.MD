@@ -1,4 +1,4 @@
-THIS VISION CONSISTS FROM 3 SECTIONS AND PROBABLY I SAW IT IN MIDST OF YEAR 2018 BEFORE I IMMIGRATE TO 9 MONTH ADVENTEROUS JOURNEY TO URFA(5 MONTHS) ANKARA(3 MONTHS) KOCAELİ(3 DAYS) İSTANBUL(2 WEEKS) ANKARA(3 DAYS) TRABZON(2 WEEKS) İSTANBUL(FINAL RETURN) WHICH SACRED & SUPREME ELEGANT MADE AN OATH ON IT IN VERSE 90:2 OF HONOURABLE & GLORIOUS QURAN
+THIS VISION CONSISTS FROM 3 SECTIONS AND PROBABLY I SAW IT IN MIDST OF YEAR 2018 BEFORE I IMMIGRATE TO 9 MONTH ADVENTEROUS JOURNEY TO URFA(5 MONTHS) ANKARA(3 MONTHS) KOCAELİ(3 DAYS) İSTANBUL(2 WEEKS) ANKARA(3 DAYS) TRABZON(2 WEEKS) İSTANBUL(FINAL RETURN) WHICH SACRED & SUPREME RAHMAN MADE AN OATH ON IT IN VERSE 90:2 OF HONOURABLE & GLORIOUS QURAN
 
 FIRST SECTION OF VISION (IN DISASTROUS DISGUSTING CITY URFA):
 
@@ -20,11 +20,17 @@ AND EVEN THOUGH SELIM REPLIED ME KINDLY AS HE BE POSSIBLE AND ASKING TO ME: "WHA
 
 THIRD SECTION OF VISION (IN CLEAN & BEAUTIFUL STEPPE OF ETIMESGUT/ANKARA):
 
-AND I, HIS SLAVE SAW HIM IN ANKARA: SACRED & SUPREME OWNER OF THE UNIVERSES THE GREAT ELEGANT THE SUPREME MERCIFUL THE GREAT 1 GOD! WITH MY OWN EYES IN FRONT OF 2 METERS OF ME... WHILE I HAVE NO MONEY EVEN 1 PENNY AT MY POCKETS AND I AM HOPELESS REGARDING TO WHAT I EAT HENCE THERE IS NOTHING IN THE LAND EXCEPT GRASS AND OPEN SKY WITH SUN SHINING AT LIKE 10:00 AM
+AND I, HIS SLAVE SAW HIM IN ANKARA: SACRED & SUPREME OWNER OF THE UNIVERSES SUPREME MERCIFUL RAHMAN THE GREAT 1 GOD! WITH MY OWN EYES IN FRONT OF 2 METERS OF ME... WHILE I HAVE NO MONEY EVEN 1 PENNY AT MY POCKETS AND I AM HOPELESS REGARDING TO WHAT I EAT HENCE THERE IS NOTHING IN THE LAND EXCEPT GRASS AND OPEN SKY WITH SUN SHINING AT LIKE 10:00 AM
 
-AND WHILE I AM IN THIS HOPELESS SITUATION HE CAME FROM HEAVENS AS A WHITE LIGHT AND CAME DOWN TO 2 MOUNTAINS NEXT TO ME THEN HE CAME NEARER 2 METERS IN FRONT OF ME AS A WHITE LIGHT IN FRONT OF ME. ALL OF HIS COMING IS HAPPENED IN 2 SECONDS. HE CAME TO ME AS A WHITE LIGHT AND TURNED HIMSELF FROM LIGHT TO HIMSELF. AND HE IS HANDSOME! OH MY SUPREME & SACRED GOD! HE IS WONDERFUL HE IS ELEGANT! ALSO SMILING!
+AND WHILE I AM IN THIS HOPELESS SITUATION HE CAME FROM HEAVENS AS A WHITE LIGHT AND CAME DOWN TO 2 MOUNTAINS NEXT TO ME THEN HE CAME NEARER 2 METERS IN FRONT OF ME AS A WHITE LIGHT. ALL OF HIS COMING IS HAPPENED IN 2 SECONDS. HE CAME TO ME AS A WHITE LIGHT AND TURNED HIMSELF FROM LIGHT TO HIMSELF. AND HE IS HANDSOME! OH MY SUPREME & SACRED GOD! HE IS WONDERFUL HE IS RAHMAN! ALSO SMILING!
 
-AND THE GREAT SACRED & SUPREME MERCIFUL TOLD ME: "BURCU'YLA EVLEN" WHICH MEANS "MARRY WITH BURCU" WHILE CONTINUE SMILING AND LOOKING AT MY EYES WITH HIS ALL BEAUTIFUL FLAWLESS CLEVER ELEGANT MERCIFUL CHARACTER! HE HAS BROWN BEARD AND BROWN HAIR AND WHITE SKIN AND HE IS AWESOME! HE USED TO WEARING ONE PIECE WHITE LONG DRESS FROM TOP TO FLOOR.
+AND THE GREAT SACRED & SUPREME MERCIFUL RAHMAN TOLD ME: "BURCU'YLA EVLEN" WHICH MEANS "MARRY WITH BURCU" WHILE CONTINUE SMILING AND LOOKING AT MY EYES WITH HIS ALL BEAUTIFUL FLAWLESS CLEVER MERCIFUL CHARACTER! SUPREME UNEQUAL RAHMAN! HE HAS BROWN BEARD AND BROWN HAIR AND WHITE SKIN AND HE IS AWESOME! HE USED TO WEARING ONE PIECE WHITE LONG DRESS FROM TOP TO FLOOR.
+
+Rahman Ve Rahim Olan ALLAH'ın Adıyla,
+
+Burcu, RAB senden özel tam olarak ne isteyecek bilmiyorum ama ben kölesine seninle evlenmemi emretti:
+
+Seninle ayrılmamızdan sonra benim cebimde 1 kuruş para yokken Ankara'nın Etimesgut ilçesi yapracık semtinin kopyası bir gezegende tek başıma apaçık masmavi bir gündüzün gökyüzünün altında güneşin konumundan anladığım kadarıyla saat 10-11 civarlarında etrafta hiç bir yol insan veya bayındırlık izi ne bir hayvan ne bir insan ne bir ev hiç birşey olmayan bakir bir gezegenin göbeğinde cebimde 1 kuruş yokken ki olsa ne yapayım onu tek başıma, adem ile havvanın dünyaya ilk indiği bakir haliyle gezegenin ortasında bir dağın tepesinde önümde karşımda ardı ardına yusyuvarlak tepeli 2 dağ ve her yer yem yeşil çimenken ve ben ne yeyip içeceğimi düşünüp üzülür ve üstümdeki kıyafetlerin varlığına sevinirken, birden masmavi gökyüzünde TANRI yani Evrenlerin Yaratıcısı Olduğunu Anladığım Bembeyaz PasParlak Beyaz 1 Işık Parıltısı'nın gökyüzünde Kendi Varlığı'nı Işığı'nın Beyazlığı ve Parlaklığıyla gündüze Rağmen Apaçık Belli Ederek gökyüzünden Işınlanarak bulunduğum gezegene hatta 2 dağ ilerimdeki tepeye İndiğini ve Sonra da o dağların yüzeyi üzerinden Işık Halinde 2 metre önüme toplamda 1-2 saniye içinde Evrenin En üstündeki Yüce Tahtı'ndan Gelerek Beyaz Işıktan, Kendi Sureti'ne Dönüşmesi ki Bembeyaz Tek Parça Dümdüz Omuzdan Ayaklarına Kadar Sade 1 Elbise Giyiyor ve ayakkabı ve çorap giymiyor çıplak Ayakla Çimenlere Basıyor ki Zaten Her Yer Pırıl Pırıl Tertemiz 35-40 lı yaşlarda Görünen Gerçekte Başı ve Sonu Olmayan Uzay-Zaman'ın Yaratıcısı Şefkatli Merhametli Rabbim Azim Ulu Yüce RAHMAN gözlerime Bakarak Sevgiyle Gülümseyen Kahverengi Saçları ve Kahverengi Sakalları olan Benzersiz Eşsiz bir İnsan Suretinde Görünüyor bana -ki Tevrat'ta insanı, Kendi Suretinde Yarattığı Geçiyor- ve gözlerim içine o içimi ısıtan Güven Veren Şefkat ve Merhamet ve Üstün Aklını Yansıtan Görünüşüyle ve O Gözleriyle gözlerime Bakarken ve Gülümserken, ben kuluna: "burcuyla evlen" diyor hepsi bu kadar 2 kelime ve bense O’na bakmaktan hipnoz olmuş halde gözlerimi bakışlarımı Yüce Eşsiz Tek Olan ALLAH’tan ve etkisinden ayıramıyorum... ve O Ulu Yüce RAHMAN, benim içimdeki herşeyi Bilen EŞSİZ TEK TANRI bana gülümsemeye devam ediyor Kıyaslanamaz Üstün Güç Sahibi
 
 YOU CAN ALSO READ THIS INCIDENT(THIRD SECTION OF MY VISION) FROM HIS WORDS IN QURAN :
 
@@ -36,7 +42,7 @@ CHAPTER 81 : ROLLING http://honourablequran.blogspot.com/p/81.html
 
 53 - The Star
 
-53:0 IN THE NAME OF THE GOD THE ELEGANT THE MERCIFUL
+53:0 IN THE NAME OF THE GOD THE RAHMAN THE MERCIFUL
 
 53:1 As the star fell away.
 
@@ -78,7 +84,7 @@ CHAPTER 81 : ROLLING http://honourablequran.blogspot.com/p/81.html
 
 81 - The Rolling
  
-81:0 IN THE NAME OF THE GOD THE ELEGANT THE MERCIFUL 
+81:0 IN THE NAME OF THE GOD THE RAHMAN THE MERCIFUL 
  
 81:1 When the sun is rolled. 
  
