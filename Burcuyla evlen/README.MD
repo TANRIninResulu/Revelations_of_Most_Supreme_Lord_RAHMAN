@@ -34,9 +34,9 @@ Seninle ayrılmamızdan sonra benim cebimde 1 kuruş para yokken Ankara'nın Eti
 
 YOU CAN ALSO READ THIS INCIDENT(THIRD SECTION OF MY VISION) FROM HIS WORDS IN QURAN :
 
-CHAPTER 53 : STAR http://honourablequran.blogspot.com/p/53.html
+CHAPTER 53 : STAR http://honourablequran.com/53
 
-CHAPTER 81 : ROLLING http://honourablequran.blogspot.com/p/81.html
+CHAPTER 81 : ROLLING http://honourablequran.com/81
 
 ![BURCUYLA EVLEN](https://raw.githubusercontent.com/aWordFromALLAH/Revelations_of_Supreme_Rahman/main/Burcuyla%20evlen/burcuyla_evlen.jpeg)
 
