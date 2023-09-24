@@ -1,8 +1,8 @@
 ```````
-IN THE NAME OF THE GOD THE ELEGANT THE MERCIFUL
+IN THE NAME OF THE GOD RAHMAN RAHIM
 
 GOD HAS TALKED to me at 27.12.2014 in Turkish which is my main language
-and SAID TO ME THESE "WORDS" BELOW WITH HIS MAGNICIFIENT VOICE coming from ALL OVER THE SKY
+and SAID TO ME THESE "WORDS" BELOW WITH HIS MAGNIFICENT VOICE coming from ALL OVER THE SKY
 while flying me over approximately 1 km above the city starting from west of its head to east of its head:
 
 "AND OLSUN BU KENTE," (Swear be to this city,)
@@ -11,7 +11,7 @@ I Heard A Powerful Thunder!
 
 "ŞÜPHESİZ Kİ SEN ELÇİLERDEN BİRİSİN." (No doubt you are one of the messengers,)
 
-GOD said to me these words while showing me "The City of Constantin" (The Constantinople) Which MAKING CONTACT PRAYER WHILE TURNING TOWARDS TO THE KAABA(QIBLA DIRECTON) from above:
+GOD said to me these words while showing me ISTANBUL "The City of Constantin" (The Constantinople) Which MAKING CONTACT PRAYER WHILE TURNING TOWARDS TO THE KAABA(QIBLA DIRECTON) from above:
 
 In order to see Praying Human Shape of The Constantinople Zoom Out:
 
@@ -346,6 +346,6 @@ vVoa5AaooC5VyZ>C4VI("V>~!1v)-"I><12^VJ.`',_+!+CS;~7    ;<!-..'` ..!i`-;_~,,,._+~
 
 53:17 The sight did not slide, and did not exceed the limit.
 
-53:18 He saw great signs of his OWNER.
+53:18 He saw great signs of his LORD.
 
 ![Praying_City_Constantinople_27-12-2014_small](https://user-images.githubusercontent.com/8404792/215320439-e87d329c-b6df-4e9c-a5e9-61b1ad73c133.png)
