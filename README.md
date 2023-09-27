@@ -1,4 +1,4 @@
-# 2 Revelations of Supreme Rahman to His Servant me (Above)
+# 2 Revelations of Supreme RAHMAN to HIS Servant me (Above)
 
 53 - The Star
 
