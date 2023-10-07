@@ -21,7 +21,7 @@ Gematrical Value of "القسطنطينيه" which means "The Constantinople" is
 
 And ORIGINAL QURAN HAS 19 x 334 VERSES after removing satanic additions 9:128-129!
 
-Istanbul: City That Praying Towards Kaaba Symbolyzes That 1 GOD Created Heavens Earth & Humans!
+Istanbul: City That Praying Towards Kaaba Symbolyzes That 1 GOD Created Heavens Earth & Humans! --> TrueClock.org
 
 @WWW88@WWW@W8@@@@@@@WNNNNNNNN0N0N0NNN000000XAN8NNEXNNNN8N@SkNNNNNN8NNNNNV@@4; `@@ok80T0DSBB0kyk@n` ` .--.``....'`.  .  '.  `    )i `````  `, ,  '+.``'+,     ..'' `. `````'  `    `.'. .!"^_``-   .;'._i2ov2oJo). _y6Suf"''-';"-~`.-  W@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@
 @88888W888888@@@@W8NN8NNNNNNN0N0N000NNNN00009NN9XSS9DXENNO00NNNNNNNN0NNNu@uO@` ~^@NNkFN4yAFI$@@@``''     `` `..```  `    `     ;; `'  `.'`  ,`. `'.`._-       ```  '_````    `,. `'.'!`.7!`   `  ``,  ~okV2yynov-`Z@T^()~.`.';>;'.~^  @@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@
