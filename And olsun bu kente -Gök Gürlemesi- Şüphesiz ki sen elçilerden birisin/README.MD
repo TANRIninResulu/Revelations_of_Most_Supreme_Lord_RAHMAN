@@ -336,6 +336,8 @@ vVoa5AaooC5VyZ>C4VI("V>~!1v)-"I><12^VJ.`',_+!+CS;~7    ;<!-..'` ..!i`-;_~,,,._+~
 
 ```````
 
+Istanbul: City That Praying Towards Kaaba Symbolyzes That 1 GOD Created Heavens Earth & Humans All ! --> TrueClock.org
+
 ![KENT_19x334](https://user-images.githubusercontent.com/8404792/215319829-27d127b9-71b7-4257-aa18-4b07fea3ed05.jpg)
 
 53:13 He saw him in another descent.
