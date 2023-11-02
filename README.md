@@ -2,7 +2,7 @@
 
 53 - The Star
 
-53:0 IN THE NAME OF ALLAH RAHMAN RAHIM,
+53:0 IN THE NAME OF ALLAH RAHMAN RAHIM
 
 53:1 As the star fell away.
 
@@ -44,7 +44,7 @@
 
 81 - The Rolling
  
-81:0 IN THE NAME OF ALLAH RAHMAN RAHIM,
+81:0 IN THE NAME OF ALLAH RAHMAN RAHIM
 
 81:1 When the sun is rolled. 
  
