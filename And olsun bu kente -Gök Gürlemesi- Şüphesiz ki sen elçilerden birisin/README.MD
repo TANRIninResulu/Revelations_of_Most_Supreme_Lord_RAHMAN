@@ -334,7 +334,7 @@ vVoa5AaooC5VyZ>C4VI("V>~!1v)-"I><12^VJ.`',_+!+CS;~7    ;<!-..'` ..!i`-;_~,,,._+~
 
 ```````
 
-Oku.FurkanHikmet.com/5
+[Oku.FurkanHikmet.com/5](https://Oku.FurkanHikmet.com/5)
 
 22- Yerler de gökler de ALLAH’ın ayetlerindendir, onlara şekil verip düzenlemiştir. Yerlerin ve göklerin bir ölçüye göre kurulu olması, yalnız O’nu tesbih etmektedir. 
  
