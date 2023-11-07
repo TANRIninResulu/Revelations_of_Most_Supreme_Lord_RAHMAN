@@ -21,8 +21,6 @@ Gematrical Value of "القسطنطينيه" which means "The Constantinople" is
 
 And ORIGINAL QURAN HAS 19 x 334 VERSES after removing satanic additions 9:128-129!
 
-Istanbul: City That Praying Towards Kaaba Symbolyzes That 1 GOD Created Heavens Earth & Humans All ! --> TrueClock.org
-
 @WWW88@WWW@W8@@@@@@@WNNNNNNNN0N0N0NNN000000XAN8NNEXNNNN8N@SkNNNNNN8NNNNNV@@4; `@@ok80T0DSBB0kyk@n` ` .--.``....'`.  .  '.  `    )i `````  `, ,  '+.``'+,     ..'' `. `````'  `    `.'. .!"^_``-   .;'._i2ov2oJo). _y6Suf"''-';"-~`.-  W@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@
 @88888W888888@@@@W8NN8NNNNNNN0N0N000NNNN00009NN9XSS9DXENNO00NNNNNNNN0NNNu@uO@` ~^@NNkFN4yAFI$@@@``''     `` `..```  `    `     ;; `'  `.'`  ,`. `'.`._-       ```  '_````    `,. `'.'!`.7!`   `  ``,  ~okV2yynov-`Z@T^()~.`.';>;'.~^  @@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@
 @8WW888888888@@@@@@@@@W8NNNNN0N0N000NNN00NNNN0000005AO0OXS0N0NNNNNNNNNNN0@vD@`   @k@@k@N5@@@@f~! .~,  `  `   `_,`'`    '.  '_,`   .``    ``      _!'.    ```,-   . .+'.,__,,,```-`') ,-`'.`.``'   `.``7V>;,,-,"n(i&3;,;+f)+>,`',<"14'1@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@@
@@ -336,7 +334,45 @@ vVoa5AaooC5VyZ>C4VI("V>~!1v)-"I><12^VJ.`',_+!+CS;~7    ;<!-..'` ..!i`-;_~,,,._+~
 
 ```````
 
-Istanbul: City That Praying Towards Kaaba Symbolyzes That 1 GOD Created Heavens Earth & Humans All ! --> TrueClock.org
+Oku.FurkanHikmet.com/5
+
+22- Yerler de gökler de ALLAH’ın ayetlerindendir, onlara şekil verip düzenlemiştir. Yerlerin ve göklerin bir ölçüye göre kurulu olması, yalnız O’nu tesbih etmektedir. 
+ 
+23- ALLAH’ın yerlerde ki ayetlerine de göklerde ki ayetlerine de bir bakın, her bir ayeti harikulade bir ilim üzerinedir. Harikulade bir ilim, ölçü ve denge üzerine kurulu olan o ayetlerin, tesadüfen oluşması mümkün değildir. 
+ 
+24- İnsanoğlunun yeryüzünde inşa ettiği ve icat edip ürettiklerine bir bakın, nasıl ki onların tesadüfen oluşması mümkün değilse, yerlerin ve göklerin de tesadüfen oluşması mümkün değildir. 
+ 
+25- Oysaki yerlerin ve göklerin yaratılması, insanoğlunun yeryüzünde inşa edip icat ettiklerinden, çok daha büyük bir şeydir. 
+ 
+26- İlim olarak, yeryüzünün ve gökyüzünün yaratılması, insanın üretip inşa ettiklerinden kıyaslanamayacak kadar ileri ve üstün bir düzeydedir. İşte bu, O’nun ilmidir. Yerler de gökler de, ALLAH’ın yüce ve noksanlıktan uzak olan ilminin bir eseridir. 
+ 
+27- Hani, Rabbin meleklere, “Ben yeryüzünde bir halife kılacağım” demişti. Onlar, “Orada fesat çıkartacak, kan dökecek birini mi kılacaksın? Oysa biz Seni hamd ile tesbih ve takdis ediyoruz.” demişler. ALLAH da, “Ben sizin bilmediğinizi bilirim” demişti. 
+ 
+28- Kitap ehli, aralarında tartışmaya girişti ve dediler ki “Melekler, yeryüzüne kılınacak olan halifenin, orada kan dökeceğini nerden bildi?” 
+ 
+29- ALLAH, her şeyi bilendir, dilediğine dilediği kadarını bildirendir. İnsan, ALLAH’ın ne ilk yarattığı nede son yarattığı değildir. O bilgiyi, her şeyi bilen, bildiren, yaratan ve yaratmayı devam ettiren ALLAH bildirmiştir. 
+ 
+30- Tek ALLAH’a kul olmak, bir insanın yeryüzünde elde edebileceği en büyük şereftir. 
+ 
+31- Ulu olan tek ALLAH’a tapınmak, insan’ın yeryüzünde en güzel şekilde onore edilmesidir ki tapındığı ALLAH, yerleri ve gökleri yaratan, her şeye kadir olan tek bir İlah’tır. 
+ 
+32- Eğer bilirseniz, O’na kul olabilme şerefine nail olmak, çok güzel bir şeydir. Size, Kendisine kul olabilme fırsatı verdiği için, O’na şükretmeniz gerekir. 
+ 
+33- Tek ALLAH’ın kulları, O’na severek ve isteyerek ibadet etsinler. 
+ 
+34- Tek ALLAH’ın kulları, yalnız kendilerini yeniden diriltecek olan tek ALLAH’a ibadet etsinler. 
+ 
+35- İbadet ederlerken bilsinler ki, ALLAH’ın onların ibadetlerine ihtiyacı yoktur, ibadet etmeye ihtiyacı olanlar, kendileridir. O, Ganidir. 
+ 
+36- O’nun sizden ibadet etmenizi istemesi boşuna değildir. Hanginizin Kendisine bağlı ve sadık kaldığının ortaya çıkmasını istemiştir. 
+ 
+37- ALLAH, Cennet ehline, oranın düzeni bozulmasın diye bir takım şeyleri yasak edecektir. 
+ 
+38- Cennet ehline yasak ettiği şeylerden biri de, Cehennem ehline asla yardım edilmemesidir. 
+ 
+39- ALLAH, yasak ettiğine bağlı ve sadık kalacak kullarının Cennet’e girmesini istemiştir. O’nun her işi hikmetlidir, Alim’dir. 
+ 
+40- Ey İman eden kadınlar! Cuma namazı, iman edenlere farz kılınmıştır. Yoksa siz, iman etmiyor musunuz da size farz olmadığını iddia edip, kılmaktan geri duruyorsunuz? ALLAH’ın hükmü böyledir, bir ayrım söz konusu değildir.
 
 ![KENT_19x334](https://user-images.githubusercontent.com/8404792/215319829-27d127b9-71b7-4257-aa18-4b07fea3ed05.jpg)
 
